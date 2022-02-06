@@ -1,6 +1,6 @@
-- Hi im lily
+- Hi im Lily
 - I like guitar and games
-- You can reach me through Instagram : tiramisu1040711 or Discord : Lillers#1518
+- You can reach me through Instagram : tiramisu1040711 or Discord : lillers#1518
 
 <!---
 lilybreakfast/lilybreakfast is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
